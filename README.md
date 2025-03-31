@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **surajkorade5456@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16vFFYyd18wUQl-qS7y6PJNqnbLi3ssFP/view](https://drive.google.com/file/d/16vFFYyd18wUQl-qS7y6PJNqnbLi3ssFP/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16vFFYyd18wUQl-qS7y6PJNqnbLi3ssFP/view]([https://drive.google.com/file/d/16vFFYyd18wUQl-qS7y6PJNqnbLi3ssFP/view](https://drive.google.com/file/d/1Gksr-MKDjADLiy8L_bzoP6xHt1dOpCxq/view?usp=sharing))
 
 - ⚡ Fun fact **I enjoy coding**
 
